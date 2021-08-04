@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Avanthika2502
+- 👀 I’m interested in gaming, books, binging.
+- 🌱 I’m currently learning mechatronics (robotics)
+- 💞️ I’m looking to collaborate on python
+- 📫 How to reach me ... through instagram @_storieswitha_ or here ;)
